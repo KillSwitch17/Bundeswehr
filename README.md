@@ -1,2 +1,0 @@
-# Bundeswehr
-Bundeswehr bild
